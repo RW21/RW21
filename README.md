@@ -1,3 +1,1 @@
-
-![lucky-star-computer-gif-comics-book-desk-table-transparent-png-1346678](https://user-images.githubusercontent.com/24377986/158098013-03f6cae2-d768-4171-89ca-7e127979a8d0.png)
-
+![konata-potyi](https://user-images.githubusercontent.com/24377986/158098158-22aaf0e6-dc22-400f-a785-32b93470a1fc.gif)
